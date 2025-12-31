@@ -15,3 +15,11 @@ A little girl gets teleported into a new world. There she finds that she is a Pr
 ## Story Content
 
 {initial_plot content if any}
+
+
+---
+
+### Contribution by Siva (2025-12-31)
+Words: 54
+
+Once upon a time there lived a little Princess.  She was happy riding her bike, roaming around the green meadows, talking to the birds and butterflies that come to the meadow, walk to the woods nearby collecting nice smelling flowers, sweetest fruits, meeting little fairies and collecting tiny little magical things from the fairies.
